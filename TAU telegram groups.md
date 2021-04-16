@@ -33,6 +33,7 @@ TAUcoin Community Philippines | <https://t.me/TAUcoin_PH>
 TAUCOIN SOUTH AFRICA | <https://t.me/TauCoinsouthAfrica>
 Iran Taucoin | <https://t.me/joinchat/JS-5dhcX-YPb_GQ-r-oE6Q>
 Taucoin Bulgarai Offical | <https://t.me/taucoin_bulgaria>
+Decentral Taucoin Ghana | <https://t.me/DTaucoinGhana>
 TAUcoin Community Indonesia	| <https://t.me/TAUcoin_IDN>
 Tau Community Development Initiative | <https://t.me/Tau_Community_Dev_Initiative>
 TAUCOIN BD COMMUNITY(Official) | <https://t.me/TAUcoin_BD>

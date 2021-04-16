@@ -39,3 +39,4 @@ Tau Community Development Initiative | <https://t.me/Tau_Community_Dev_Initiativ
 TAUCOIN BD COMMUNITY(Official) | <https://t.me/TAUcoin_BD>
 TAUcoin Community Turkey | <https://t.me/taucoin_TR>
 TAU Official Group of India	| <https://t.me/Tau_India>
+Decentral Taucoin Ghana | <https://t.me/DTaucoinGhana>
